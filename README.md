@@ -6,3 +6,4 @@
 - 📫 Where to reach me: swagging@post.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Virtual machines are 100% useful
+- 👤 Only @swagging-post and @sc0ttferren are my accounts. Any other are impersonating me. Don't fall for their scam.
